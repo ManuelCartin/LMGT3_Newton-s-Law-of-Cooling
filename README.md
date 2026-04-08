@@ -1,0 +1,1 @@
+# LMGT3_Newton-s-Law-of-Cooling
